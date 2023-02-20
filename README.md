@@ -1,2 +1,2 @@
-# lol
+# jokes
 random images
